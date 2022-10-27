@@ -1,1 +1,7 @@
-# Barnomarezi
+![photo_2022-10-24_04-30-03](https://user-images.githubusercontent.com/105871886/198399692-e6d7a132-1599-4bf6-b326-98da7622fc3b.jpg)
+![photo_2022-10-24_04-30-04](https://user-images.githubusercontent.com/105871886/198399719-aa345b76-d6f8-4623-93b7-a81923eb86fc.jpg)
+![photo_2022-10-24_04-29-54](https://user-images.githubusercontent.com/105871886/198399736-6dfda056-50dc-4b91-a1cd-84c14174288f.jpg)
+![photo_2022-10-24_04-30-00](https://user-images.githubusercontent.com/105871886/198399760-b5b6bdfc-e9ab-468c-b35d-d55c7254f0e0.jpg)
+![photo_2022-10-24_04-29-59](https://user-images.githubusercontent.com/105871886/198399784-5a7aa4a5-5e51-48a5-a478-d8b83656469d.jpg)
+![photo_2022-10-24_04-30-01](https://user-images.githubusercontent.com/105871886/198399808-67d06339-31b9-4869-ba91-9862b6dd0d66.jpg)
+![photo_2022-10-24_04-29-57](https://user-images.githubusercontent.com/105871886/198399818-42add1a3-f50d-467e-afae-259eef4c2f93.jpg)
